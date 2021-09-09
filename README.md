@@ -1,2 +1,2 @@
-# bahasa-path
-Dalam Pelajaran ini siswan di harapkan mampu memahami sesuatu ataupun nilai lainnya dari suatu kata atau susunan kata yang menjadi kalimat. Dalam melakukan penyusunan kalimat para siswa yang baik biasa dapat embeded yang baik pula, kami biasa menyembutnya
+# Bahasa-Path
+Dalam Pelajaran ini siswan di harapkan mampu memahami sesuatu ataupun nilai lainnya dari suatu kata atau susunan kata yang menjadi kalimat. Dalam melakukan penyusunan kalimat para siswa yang baik biasa dapat embeded yang baik pula, kami biasa menyembutnya dengan nilai Mantra. Tetapi metode pemberian nilai untuk kelaas awal ini hanya merupakan pelajaran dalam  pengartian kata saja dan kami biasanya bagi para pelajar yang terbaik adalah mereka memiliki nilai Karma yang tinggi.
