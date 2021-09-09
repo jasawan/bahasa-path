@@ -1,6 +1,6 @@
 # Bahasa-Path
 Dalam Pelajaran ini para siswa di harapkan mampu memahami sesuatu ataupun nilai lainnya dari suatu kata atau susunan kata yang menjadi kalimat. 
-## The Value Of Mantra (Emblem)
+## The Value Of Mantra (Emblem System)
 Dalam melakukan penyusunan kalimat para siswa yang baik biasa dapat embeded yang baik pula, kami biasa menyembutnya dengan nilai Mantra. 
 
 Ubtuk pelajaran Bahasa di Classroom saat ini, saya sebagai turornya akan menjelaskan dan meberikan penilaian dengan  metode pemberian nilai untuk kelaas awal ini hanya merupakan pelajaran bahasa dalam  pengartian kata saja.
